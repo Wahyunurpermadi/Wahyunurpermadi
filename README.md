@@ -4,9 +4,10 @@ A great curiosity made me a person who always wanted  to contribute. But, I alwa
 
 - 💬 Ask me about anything
 - 📫 How to reach me: wahyunurpermadi@gmail.com
+- Instagram : @np_wahyu
+- LinkedIn : (https://www.linkedin.com/in/wahyunurpermadi/)
 
 ## Education:
-
 #### 1. [Universitas Nasional] | Bachelor of Political Science | Jakarta 2012 - 2016
 Major                        : International Relations / International Political Economy. GPA 3.70 of 4.00
 Title of Undergraduate Thesis: Indonesian - French Governments Roles in Mahakam Block Extension in 2014-2015 (Review of International Political Economy)
@@ -28,3 +29,10 @@ INDUSTRY : RETAIL - Fashion
 3. Young On Top Campus Ambassadors Batch 6 in 2015
 4. Pasukan Pengibar Bendera Pusaka (PASKIBRAKA) Kota Administrasi Jakarta Timur in 2010
 5. The Best Commander of DKI Jakarta level in 2008
+
+## Organization Experience :
+1. Abang None Jakarta Timur 2016 - 2017 | (https://www.instagram.com/abnontimur/?hl=en)
+2. Young On Top Campus Ambassadors Batch 6 | 2015 - 2016 (https://www.instagram.com/youngontop/)
+3. Mahasiswa Penyayang Kanak-kanak (Swayanaka Jakarta) | 2015 - 2016
+4. Hilo Green Community Jakarta | 2015
+5. Purna Paskibraka Indonesia Kota Administrasi Jakarta Timur | 2010 - 2013 (https://www.instagram.com/ppijakartatimur/?hl=id)
